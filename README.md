@@ -1,2 +1,2 @@
 # rsschool-cv
-CV
+https://Left-Handed445.github.io/rsschool-cv/cv
